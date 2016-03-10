@@ -20,7 +20,6 @@ No, this is not really about code development. Please share your favorite places
 * [Gebr. Harterink](http://www.gebr-hartering.nl/) - Prepare for a great nine course meal and a big bill at the end :wine_glass: :+1: :cry:
 * [Cannibale Royale](http://www.cannibaleroyale.nl/) - Cool Steaks and nice atmosphere
 * Wijnbar [Barrique](http://www.restaurantbarrique.nl/) - Nice food and great wines
-* [Leef] (www.leefetenendrinken.nl/) - Great food
 
 
 ## Drinks
